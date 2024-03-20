@@ -1,0 +1,9 @@
+- im Yui because im Yui or I'm Yui because im yui?
+- im interested in toji's worm.
+- im learning domain expansion, nah id win.
+- I’m collaborating on jjk
+- to reach me just reach the sun
+- Pronouns: KitKat AKA her/she
+- Fun fact: i can read and write
+- so coquette 🪻🌕🦢🍬🎐🎀
+- im special because you're my special in lobotomy kaisen ♥
